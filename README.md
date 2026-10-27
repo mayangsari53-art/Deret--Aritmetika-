@@ -1,0 +1,2 @@
+# Deret--Aritmetika-
+Deret -Aritmetika-
